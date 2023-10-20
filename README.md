@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning java and javascript!
 - 👯 I’m looking to collaborate on anything to help me learn!
 - 🤔 I’m looking for help with understanding Git
-- 💬 Ask me about mny mission trip!
+- 💬 Ask me about my mission trip!
 - 📫 How to reach me: at my email! (benblazer2020@gmail.com)
 - 😄 Pronouns: (He/Him)
 - ⚡ Fun fact: A nerd and a sports fan? Is it even possible?
